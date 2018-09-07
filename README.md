@@ -1,4 +1,8 @@
 # Eric-Sabrin-Lindsay-killinIt
 
 
-Delete project! immediately! 
+
+### Delete Learning
+
+### Trying hard!
+
